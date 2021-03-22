@@ -6,6 +6,8 @@
 
 💼 Don't hesitate to **check my repos** and for a better overview of my projects, you can check out **[my Portfolio](https://remybeumier.be)** or **[my Resume](https://remybeumier.be/remy-beumier-resume.html)**.
 
+☕️ If you find value in what I offer don't hesitate and **[buy me a coffee](https://www.buymeacoffee.com/beumsk)**.
+
 ![Man typing crazy on a keyboard](https://media.giphy.com/media/PiQejEf31116URju4V/giphy.gif)
 
 *That might be me sometimes 😂*
